@@ -1,11 +1,16 @@
 Equipment Requirements
+
 The following are the recommendations of the CSG for fencing equipment. Anyone who refuses
 to wear the proper personal protective equipment will not be permitted to participate. Anyone
 who intentionally obscures, or prevents from being known, errors, damages and defects in
 personal protective equipment may be subject to disciplinary action.
+
 Notes:
+
 • All references to the word “metal” mean steel unless specifically noted otherwise.
+
 • NO fencing in shorts or short sleeves will be permitted.
+
 “Hockey gloves” refers to the La Crosse / street hockey type, not ice hockey gloves, which deter
 mobility without providing sufficiently increased protection.
 
