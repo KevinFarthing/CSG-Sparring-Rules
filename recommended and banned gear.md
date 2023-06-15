@@ -15,7 +15,7 @@
   
 ### Nylon Longsword:
 
-- [Purpleheart Nylon Longsword]([https://duckduckgo.com](https://www.woodenswords.com/Type_III_Pentti_Longsword_50_p/type-iii-50.gry.htm)).  
+- [Purpleheart Nylon Longsword](https://www.woodenswords.com/Type_III_Pentti_Longsword_50_p/type-iii-50.gry.htm).  
   
 ### Gambesons:
 
